@@ -1,1 +1,2 @@
 Jon Jons
+Conor McGregor
